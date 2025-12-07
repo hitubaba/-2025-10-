@@ -1,4 +1,4 @@
-परिचय
+[googlef08c72267d0abdd9 (2).html](https://github.com/user-attachments/files/24014942/googlef08c72267d0abdd9.2.html)परिचय
 
 आज इंडिया में हर कोई घर बैठे पैसे कमाने के तरीके खोज रहा है।
 स्कूल के स्टूडेंट हों या नौकरी करने वाले, हर कोई extra income चाहता है।
@@ -164,3 +164,9 @@ Resume बनाना
 2025 में पैसा कमाने के लिए आपको किसी बड़ी degree या investment की जरूरत नहीं।
 बस सही तरीका चुनें और 30 दिन लगाकर कुछ नया सीखें।
 Income खुद शुरू हो जाएगी।
+
+
+
+[Uplogoogle-site-verification: googlef08c72267d0abdd9.htmlading googlef08c72267d0abdd9 (2).html…]()
+
+
